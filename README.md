@@ -20,18 +20,18 @@
 <h5 align="center">
 [✙]𓈒ᴗ)　BROKER, FIFER 　𓉸𓉸 　IT / NO PRNS (ANY OK)　︵.
 
-♰𓈒 )　enfp / entp t, 4w3 　× × 　minor (friends ask 4 age)　𓎟𓎟𓍢
+♰𓈒 )　enfp t, 4w3 　× × 　minor (friends ask 4 age)　𓎟𓎟𓍢
 </h5>
 
 <p align="center">
 <img src="https://i.postimg.cc/jSB2bs1J/blur-edges.png"/>
  </p>
  <h5 align="center">
-✙⠀ ࣪ dont copy/take *heavy* inspo off ponies
+✙⠀ ࣪ main interests are phighting, regretevator, pressure,
 
-whisper 4 disc. i do graphics / recolors, but also enjoy interactions ♪ 
+trauma center (wii u game), and my ocs
      
-look at rentry 4 more/personal info 　ᛝᛝ 　im happily [taken](https://github.com/endearr) ♥︎♥︎!!
+dont copy/*heavy* inspo off my ponies 　ᛝᛝ 　happily [taken](https://github.com/endearr) ♥︎♥︎!!
 
 i dont use/need tonetags unless asked ࣪ ⠀✙
 
