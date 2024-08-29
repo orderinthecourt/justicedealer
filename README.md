@@ -29,7 +29,7 @@
  <h5 align="center">
 ✙⠀ ࣪ main interests are phighting, regretevator, pressure,
 
-trauma center (wii u game), and my ocs
+trauma center (wii/ds game), and my ocs
      
 dont copy/*heavy* inspo off my ponies 　ᛝᛝ 　happily [taken](https://github.com/endearr) ♥︎♥︎!!
 
