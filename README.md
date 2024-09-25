@@ -30,7 +30,7 @@
  <h5 align="center">
 ✙⠀ ࣪ main interests are phighting, dr house/house md, pressure,
 
-trauma center (wii / ds), reverse 1999, and my ocs
+trauma center (wii / ds), reverse 1999, regretevator, ocs
      
 dont copy/*heavy* inspo off my ponies 　ᛝᛝ 　happily [taken](https://github.com/endearr) ♥︎♥︎!!
 
