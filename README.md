@@ -21,20 +21,18 @@
 <h5 align="center">
 [✙]𓈒ᴗ)　DEALT, FIFER 　𓉸𓉸 　IT / NO PRNS (ANY OK)　︵.
 
-♰𓈒 )　enfp t, 4w3 　× × 　minor (ask if friend)　𓎟𓎟𓍢
+♰𓈒 )　enfp t, 4w3 　× × 　minor (ask 4 range/age if needed　𓎟𓎟𓍢
 </h5>
 
 <p align="center">
 <img src="https://i.postimg.cc/tJVKJ4SL/ezgif-2-88d8306616.png"/>
  </p>
  <h5 align="center">
-✙⠀ ࣪ you'll find me in the roblox area
+✙⠀ ࣪ you'll find me in the roblox area or with boyfriend
    
 dont copy/*heavy* inspo off my ponies 　ᛝᛝ 　happily [taken](https://github.com/endearr) ♥︎♥︎!!
 
 i have little to no empathy + mentally ill. this can affect convos
-
-^ also commonly sick. this can make me easily irritable + slow replying
 
 free 2 sit/int with i dont care 　ᛝᛝ 　i can be insensitive or annoying ࣪ ⠀✙
 
@@ -45,15 +43,17 @@ free 2 sit/int with i dont care 　ᛝᛝ 　i can be insensitive or annoying �
 </p>
 
 <h5 align="center">
-✙⠀ ࣪ DO NOT INTERACT: i block/hide freely . darkship/proship/profic idk
+✙⠀ ࣪ DO NOT INTERACT ࣪ ⠀✙
 
-you hate legal healthy age gaps (examples;; banbox or medhammer)
+i block/hide freely 　ᛝᛝ 　darkship/proship/profic idk
 
-^ BASICALLY if ur stupid and lack common sense .
+you hate legal adult age gaps (examples;; banbox or medhammer)
+
+-13 and 18+ 　ᛝᛝ 　just don't be weird or stupid
 
 diddys world/vivziepop fans 　ᛝᛝ 　[pro israel/neutral](https://decolonizepalestine.com/)
 
-[endogenic/non trauma systems](https://why-endos-are-bad.carrd.co/) 　ᛝᛝ 　[anti recovery d/a's](https://delusionalattachments.carrd.co/#) ࣪ ⠀✙
+[endogenic/non trauma systems](https://why-endos-are-bad.carrd.co/) 　ᛝᛝ 　[anti recovery d/a's](https://delusionalattachments.carrd.co/#)
 
 </h5>
 
