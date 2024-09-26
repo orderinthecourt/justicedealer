@@ -1,5 +1,5 @@
 
-[EASY 2 READ (somewhat outdated. ill update soon)](https://rentry.co/brokercoine)
+[EASY 2 READ/INFO ABT ME (somewhat outdated. ill update soon)](https://rentry.co/brokercoine). 
 
     
 <h3 align="center">
@@ -28,13 +28,15 @@
 <img src="https://i.postimg.cc/tJVKJ4SL/ezgif-2-88d8306616.png"/>
  </p>
  <h5 align="center">
-✙⠀ ࣪ main interests are phighting, dr house/house md, pressure,
-
-trauma center (wii / ds), reverse 1999, regretevator, ocs
-     
+✙⠀ ࣪ you'll find me in the roblox area
+   
 dont copy/*heavy* inspo off my ponies 　ᛝᛝ 　happily [taken](https://github.com/endearr) ♥︎♥︎!!
 
-i dont use/need tonetags unless asked ࣪ ⠀✙
+i have little to no empathy + mentally ill. this can affect convos
+
+^ also commonly sick. this can make me easily irritable + slow replying
+
+free 2 sit/int with i dont care 　ᛝᛝ 　i can be insensitive or annoying ࣪ ⠀✙
 
 </h5>
 
@@ -43,13 +45,15 @@ i dont use/need tonetags unless asked ࣪ ⠀✙
 </p>
 
 <h5 align="center">
-✙⠀ ࣪ DO NOT INTERACT: i block freely . basic dni criteria
+✙⠀ ࣪ DO NOT INTERACT: i block/hide freely . darkship/proship/profic idk
 
-darkship/proship/profic idk 　ᛝᛝ 　[pro israel/neutral](https://decolonizepalestine.com/)
+you hate legal healthy age gaps (examples;; banbox or medhammer)
 
-vivziepop + diddys world fans 　ᛝᛝ 　[anti recovery d/a's](https://delusionalattachments.carrd.co/#)
+^ BASICALLY if ur stupid and lack common sense .
 
-[endogenic/non trauma systems](https://why-endos-are-bad.carrd.co/) ࣪ ⠀✙
+diddys world/vivziepop fans 　ᛝᛝ 　[pro israel/neutral](https://decolonizepalestine.com/)
+
+[endogenic/non trauma systems](https://why-endos-are-bad.carrd.co/) 　ᛝᛝ 　[anti recovery d/a's](https://delusionalattachments.carrd.co/#) ࣪ ⠀✙
 
 </h5>
 
