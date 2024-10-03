@@ -32,7 +32,7 @@
    
 dont copy/*heavy* inspo off my ponies 　ᛝᛝ 　happily [taken](https://github.com/endearr) ♥︎♥︎!!
 
-i have little to no empathy + mentally ill. this can affect convos
+mental & physical issues. these affect my mood and therefore some convos
 
 free 2 sit/int with i dont care 　ᛝᛝ 　i can be insensitive or annoying ࣪ ⠀✙
 
