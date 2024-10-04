@@ -51,7 +51,7 @@ you hate legal adult age gaps (examples;; banbox or medhammer)
 
 -13 and 18+ 　ᛝᛝ 　just don't be weird or stupid
 
-diddys world/vivziepop fans 　ᛝᛝ 　[pro israel/neutral](https://decolonizepalestine.com/)
+  you support dandys world or vivziepop ᛝᛝ 　[neu/pro israel](https://decolonizepalestine.com/)
 
 [endogenic/non trauma systems](https://why-endos-are-bad.carrd.co/) 　ᛝᛝ 　[anti recovery d/a's](https://delusionalattachments.carrd.co/#)
 
